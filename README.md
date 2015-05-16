@@ -1,2 +1,2 @@
 # learning-note
-just for blog, enhance team popularity!
+# wo de di pan, wo zuo zhu !!!
